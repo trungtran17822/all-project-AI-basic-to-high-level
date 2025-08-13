@@ -1,1 +1,1 @@
-toi ten la tuan trung
+toi ten la trọng minh
